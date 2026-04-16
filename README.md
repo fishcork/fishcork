@@ -6,7 +6,7 @@
 
 <img src="my.png">
 
-(๑>؂•̀๑) . [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
+(๑) [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
 
 
