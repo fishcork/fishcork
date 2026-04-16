@@ -2,7 +2,7 @@
 
 ⟡ ݁₊ .
 
-[aerith](https://github.com/verifiedreality) [cloud](https://github.com/stellariism) [zack](https://github.com/EliotHX)
+[tifa](https://github.com/verifiedreality) [cloud](https://github.com/stellariism) [zack](https://github.com/EliotHX)
 
 <img src="my.png">
 
