@@ -1,12 +1,12 @@
 <div align="center">
 
-⟡ ݁₊ .
+me and my siblings are #Geniuses with our height differences
 
-[tifa](https://github.com/verifiedreality) [cloud](https://github.com/stellariism) [zack](https://github.com/EliotHX)
+[ant](https://github.com/verifiedreality) [worm](https://github.com/stellariism) [horse](https://github.com/EliotHX)
 
-<img src="my.png">
+<img src="dodogng.png">
 
-(๑) [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
+[rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
 
 
