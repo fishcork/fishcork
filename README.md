@@ -12,7 +12,7 @@
 
 <img src="lia.png">
 
-honorable mention my [lil sis](https://github.com/bunsho-shin)
+honorable mention my [lil sis](https://github.com/bunsho-shin) Ignore the Ant writing
 
 
 
