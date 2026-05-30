@@ -10,10 +10,6 @@
 
 [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
-<img src="lia.png">
-
-honorable mention my [lil sis](https://github.com/bunsho-shin) Ignore the Ant writing
-
 
 
 
